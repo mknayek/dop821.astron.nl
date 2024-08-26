@@ -1,1 +1,0 @@
-# mohakal.github.io
